@@ -1,4 +1,5 @@
 Privacy Policy
+
 Please read the privacy policy of use carefully. By using this service, you agree that you have understood Accept and agree to the privacy policy of use. IF YOU DO NOT AGREE TO THE TERMS AND CONDITIONS (as defined below) and wish to terminate the use of the Service. Please do not proceed using this application or website.
 
 
